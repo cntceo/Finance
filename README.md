@@ -71,10 +71,14 @@
 世纪大通缩,全球大萧条!(一)
 
 （图：我国自2000年来的金融货币数据）
+![image](https://user-images.githubusercontent.com/78466831/227168828-556b21de-aa0b-4506-b39c-9d2976b55a2d.png)
+
 
 世纪大通缩,全球大萧条!(一)
 
-（图：我国自2000年来的各年度金融货币增量数据） 
+（图：我国自2000年来的各年度金融货币增量数据）
+![image](https://user-images.githubusercontent.com/78466831/227168893-3edf89bf-c423-44a6-ae5a-78bd5b5dea43.png)
+
 
 世纪大通缩,全球大萧条!(一)
 
